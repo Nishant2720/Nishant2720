@@ -1,0 +1,8 @@
+- 👋 Hi, I’m Nishant shrivastava and can be reached @nishant2720
+- 👀 I’m interested in exploring suitable job oppurtunity in sales and Marketing in or outside india 
+- 🌱 I’m currently looking out for job oppurtunity.
+- 💞️ I’m looking to collaborate on project based or permanenet role in business development or expanding the business in new location.
+- 📫 How to reach me ... You can reach meat Mobile - 9820019004 or 9820241002 and on email at nishant2720@gmail or linkedin in/nishants2720
+- Short Brief about me - Management professional with 18 years of exeprience in sales and marketing in established brands like pepsico,Cadburys ,vodafone samsung etc and start up organisation.
+- Go getter attitude with strong integrity,quick learning aility with passion and competence to work as strong team member.
+- Looking forward...
